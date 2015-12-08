@@ -43,5 +43,6 @@ http://www.averyw.me/RunNGunPoster.pdf
 
 
 On my honor, I have neither given nor received any unauthorized aid on this assignment.
+if you accept this change would that count as unauthorized aid?
 
 -Avery Whitaker
